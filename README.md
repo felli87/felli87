@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @felli87
-- 👀 I’m interested in girl with a big ass))
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on you!
 - 📫 How to reach me? no way!
